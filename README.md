@@ -8,3 +8,5 @@ Fast Pop is a Fun and Addictive game. It is Best Ad Free Game, and it does not r
 
 ![1000 (1)](https://user-images.githubusercontent.com/26148025/114913608-03dee680-9e3f-11eb-9320-ed3483c67faf.jpg)
 
+# Link of the App 
+https://crazytechgo.com/fast-pop-game-best-ad-free-game-offline/
